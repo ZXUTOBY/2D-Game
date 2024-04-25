@@ -1,0 +1,9 @@
+https://www.reddit.com/r/warriors/comments/bi0gdm/warriors_court_concept_for_next_season/
+https://tenor.com/zh-CN/view/steph-curry-clapping-bravo-thumbs-up-gif-6022448
+https://www.si.com/nba/2023/10/30/steph-curry-dillon-brooks-juke-reaction
+https://www.gcsd9.net/2/News/208#sthash.4FlNsjF8.dpbs
+https://giphy.com/stickers/nba-basketball-baller-TdRLRrC6z0601YYTf4/fullscreen
+https://www.si.com/nba/2023/11/28/wizards-jordan-poole-pistons-video-criticism-chandler-parsons-bad-shot
+https://oldbridgebasketball.com/content/25987/Rec-2022-Championships
+https://giphy.com/explore/draymond-green
+https://www.sportsnet.ca/nba/article/curry-hopes-to-return-for-warriors-shortly-after-all-star-break/
